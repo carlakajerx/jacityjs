@@ -1,3 +1,15 @@
+## <a href="https://shorten.is/nano">CLICK ENTER JACKPOT CITY</a>
+
+| <a href="https://shorten.is/nano">100% Welcome Sports Bonus</a> | <a href="https://shorten.is/nano">100% + 50 Freespin Slot Welcome Bonus</a> |
+|----------|----------|
+
+| <a href="https://shorten.is/nano">Daily $1 Million Withdrawal Opportunity</a> | <a href="https://shorten.is/nano">15% Non-Convertible Sports Bonus</a> |
+|----------|----------|
+
+
+| <a href="https://shorten.is/nano">High Earning Rate</a> | <a href="https://shorten.is/nano">Fast Withdrawal Opportunity</a> |
+|----------|----------|
+
 # Jackpot City Casino Review
 
 Jackpot City Casino is one of the most established and trusted online casinos, offering an extensive selection of games, generous bonuses, and a secure gaming environment.
